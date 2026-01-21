@@ -1,4 +1,4 @@
-# bellis
+# bellicists
 
 *bellus* — pretty | *perennis* — everlasting
 
